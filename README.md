@@ -1,4 +1,4 @@
-# # Shierly Charlene Marcellya
+# Shierly Charlene Marcellya
 
 Email : scharlenemarcellya@gmail.com
 
